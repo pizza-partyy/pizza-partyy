@@ -1,1 +1,14 @@
-# party-timee
+<div align="center">
+<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/605b96cf-88ac-428f-8396-7e0d43c2724c" /> 
+  
+  ![](https://komarev.com/ghpvc/?username=lonely-lovee&label=partygoers&base=28034&style=flat-square&color=fe9326)
+
+<div align="center">
+<img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/a6c87328-3fc0-4f38-8885-4c897ec9706e" />
+
+
+<div align="center">
+<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/605b96cf-88ac-428f-8396-7e0d43c2724c" /> 
+  
+[straw](https://lonely-lovings.straw.page/) 
+[ata](https://lonely-love.atabook.org/)
