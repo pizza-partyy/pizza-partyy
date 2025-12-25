@@ -12,7 +12,6 @@
   
 
 [ata](https://party-time.atabook.org/)
-[♡](https://github.com/itscalledstalking)
 
  <div align="center">
  ᶦ ˡᵒᵛᵉ ʸᵒᵘ ᵇʳᵃᵈˡᵉʸᵎ
