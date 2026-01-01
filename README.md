@@ -13,7 +13,7 @@
 
 [ata](https://party-time.atabook.org/)
 [straw](https://pinkelectric.straw.page)
-
+[socials](https://guns.lol/springtrapped)
  
  <div align="center">
  ᶦ ˡᵒᵛᵉ ʸᵒᵘ ᵇʳᵃᵈˡᵉʸᵎ
